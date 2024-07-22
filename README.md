@@ -2,8 +2,8 @@
 - 👀 I’m interested in atuar na área de TI como desenvolvedor Phayton 
 - 🌱 I’m currently learning muito sobre linguagem de programação 
 - 💞️ I’m looking to collaborate com novos projetos de Front End e Back End
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me (61) 98378-2767 
+- 😄 Pronouns: Vanvan
 - ⚡ Fun fact: ...
 
 <!---
