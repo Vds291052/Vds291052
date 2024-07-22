@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate com novos projetos de Front End e Back End
 - 📫 How to reach me (61) 98378-2767 
 - 😄 Pronouns: Vanvan
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:Novos projetos
+- 💌 E-Mail: vanessa.vavane@qmail.com 
 
 <!---
 Vds291052/Vds291052 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
